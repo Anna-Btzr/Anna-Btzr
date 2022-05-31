@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Anna-Batzeri
+- 🌱 I’m currently learning studying master degree in ACIT for Universal Design of ICT.
+- 📫 email: batzeri.anna@gmail.com
