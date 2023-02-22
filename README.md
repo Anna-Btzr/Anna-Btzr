@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Anna-Batzeri
-- 🌱 I’m currently learning studying master degree in ACIT for Universal Design of ICT at Oslo Metropolitan University, Norway.
+- 🌱 I’m currently studying on my master degree in ACIT for Universal Design of ICT at Oslo Metropolitan University, Norway.
 - 📫 email: batzeri.anna@gmail.com
